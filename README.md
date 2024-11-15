@@ -1,0 +1,1 @@
+Pierwszy edit na stronce. 
